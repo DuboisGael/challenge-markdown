@@ -32,4 +32,5 @@ J'ai pendant une année travaillé pour une maison de repos. Il y avais une dame
 
 Une vieille dame recois des homme dans ça chambre en maison de repos pour faire des fellation.
 
-[previous](https://github.com/FrankZiWANG-dev/Markdown-solo) 
+[<< previous](https://github.com/FrankZiWANG-dev/Markdown-solo) || YOUR NAME || [next >>](https://github.com/Giuseppemoi/challenge-markdown/blob/master/README.md)
+
