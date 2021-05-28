@@ -31,3 +31,5 @@ J'ai pendant une année travaillé pour une maison de repos. Il y avais une dame
 ###### TL;DR (even smaller header, under funny story)
 
 Une vieille dame recois des homme dans ça chambre en maison de repos pour faire des fellation.
+
+<< previous [Lien] (https://github.com/FrankZiWANG-dev/Markdown-solo "Frank WANG")  || YOUR NAME || next >>
