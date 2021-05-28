@@ -10,7 +10,7 @@
 | :-----------------: | :------------: |
 | Gender              | Male           |
 | favorite color      | blue           |
-|Pinneapple on pizza  | [x]No []Yes   |
+|Pinneapple on pizza  | [x]No [  ]Yes  |
 
 ### Hobbies
 
